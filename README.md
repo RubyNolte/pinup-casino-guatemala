@@ -1,7 +1,7 @@
 # pinup-casino-guatemala
 Pin Up Casino Guatemala - Plataforma Móvil
 
-Lleva la emoción de las apuestas en línea directamente a tu dispositivo móvil con Pin Up Casino Guatemala. Nuestra plataforma móvil está optimizada para brindarte una experiencia de juego fluida, sin importar dónde te encuentres. Accede a una gran variedad de juegos, incluyendo tragamonedas, ruleta, blackjack y mucho más, todo desde tu teléfono o tablet. Disfruta de la comodidad de apostar en cualquier lugar, con una interfaz intuitiva y un rendimiento rápido y seguro.
+Lleva la emoción de las apuestas en línea directamente a tu dispositivo móvil con Pin Up Casino Guatemala. Nuestra plataforma móvil está optimizada para brindarte una experiencia de juego fluida, sin importar dónde te encuentres. Accede a una gran variedad de juegos, incluyendo tragamonedas, ruleta, blackjack y mucho más, todo desde tu teléfono o tablet https://pin-up-casino-guatemala.gt/live-casino Disfruta de la comodidad de apostar en cualquier lugar, con una interfaz intuitiva y un rendimiento rápido y seguro.
 
 Características clave:
 
